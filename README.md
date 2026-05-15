@@ -7,4 +7,8 @@ AND YES C+H WITH ME PLEASE IMSO LONELY
 <img width="736" height="528" alt="101e7ae1b8939da0d1f1b48d502de7f1" src="https://github.com/user-attachments/assets/ca6f7b9d-4c48-4ffa-ae9f-6c1eadf8cd71" />
 
 
-sign my straw and follow twt!!
+<div align="center">
+  <h1>sign my straw and follow twt!!</h1>
+  <p>Этот текст и всё, что ниже, будет строго по центру.</p>
+</div>
+
