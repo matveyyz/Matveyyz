@@ -9,6 +9,6 @@ AND YES C+H WITH ME PLEASE IMSO LONELY
 
 <div align="center">
   <h1>sign my straw and follow twt!!</h1>
-  <p>Этот текст и всё, что ниже, будет строго по центру.</p>
+  <p> @matveeyz on X and @MatveyFuck on tg</p>
 </div>
 
