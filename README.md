@@ -7,6 +7,6 @@ $$\color{red}\text{- my name is matvey, u can call me as jager , inho , wemmbu ð
 
 
 <div align="center">
-  <h1>sign my straw and follow twt!!</h1>
-  <p> @matveeyz on X and @MatveyFuck on tg</p>
+  <h1>follow my github please!!</h1>
+  <p> no dni i dont fcking care ok </p>
 </div>
