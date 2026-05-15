@@ -1,6 +1,6 @@
 ## Hioo !!‧₊彡
 
-my name is matvey, u can call me as ze , inho , wemmbu 𓏲ּ ᥫ᭡ ˑ ִֶ  (cis he him)
+my name is matvey, u can call me as klaus jager , inho , wemmbu 𓏲ּ ᥫ᭡ ˑ ִֶ  (cis he him)
 
 AND YES C+H WITH ME PLEASE IMSO LONELY
 
@@ -8,6 +8,3 @@ AND YES C+H WITH ME PLEASE IMSO LONELY
 
 
 sign my straw and follow twt!!
-
-<img width="702" height="468" alt="842e470bcc7c5568460dc89ffdcfaca4" src="https://github.com/user-attachments/assets/074a6888-f063-410e-a7c1-5200e8d6c602" />
-iluvleebyunghun.....🥺
